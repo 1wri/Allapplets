@@ -5,7 +5,7 @@
 链接: https://pan.baidu.com/s/1wI3eHBispO-PgYxvt07c9w?pwd=xf9a 提取码: xf9a
 --来自百度网盘超级会员v3的分享
 
-### 项目合集(项目不断更新中)
+### 项目合集(项目不断更新中，包含javaweb、vue、python、Android、微信小程序等项目)
 链接: https://pan.baidu.com/s/1nY-zhvAK0CXYcn3g7LzQnQ?pwd=id3c 提取码: id3c
 --来自百度网盘超级会员v3的分享
 
